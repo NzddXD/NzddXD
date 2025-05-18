@@ -1,4 +1,4 @@
-![cool cat](https://imghost.net/ib/zqVQu0qylmthPZf_1747575108.png)
+![cool cat](https://imghost.net/ib/jtcVXg7CFI3OdBD_1747577490.png)
 <!---
 I love cats because they adorable and meows and do nothing. solid 10/10
 --->
