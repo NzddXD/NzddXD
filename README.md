@@ -1,7 +1,4 @@
-![cool cat](https://imghost.net/ib/jtcVXg7CFI3OdBD_1747577490.png)
-<!---
 I love cats because they adorable and meows and do nothing. solid 10/10
---->
 
 # Socials
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/NzddXD) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/NzddXD) 
